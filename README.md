@@ -12,6 +12,7 @@ I graduated my Master degree in Computer Technology at Eastern Illinois Universi
 
 How to reach me: Feel free to connect with me on
 [LinkedIn]- https://www.linkedin.com/in/sarika-reddy-v/ or 
+https://public.tableau.com/app/profile/sarika.reddy6107/vizzes - Tableau
 drop me an email at vontarys@gmail.com. Let's connect and explore opportunities to collaborate!
 
 
